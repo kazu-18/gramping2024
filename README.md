@@ -18,8 +18,9 @@ JR近江高島駅より徒歩約15分
 ![image](https://github.com/kazu-18/gramping2024/assets/63463085/9a64f5f5-322b-4034-ab87-0a903773935c)
 
 
-## 物件名
+## 琵琶湖ドギーズグランピング 滋賀今津浜
 https://www.imaduhama-dogglamping.com/
+![image](https://www.imaduhama-dogglamping.com/wp-content/uploads/2024/05/dome06.jpg)
 ### 特徴
 お部屋に温泉あり
 ### アクテビティ
@@ -27,7 +28,8 @@ https://www.imaduhama-dogglamping.com/
 ### アクセス
 「近江今津駅」より無料送迎（6分）
 ### 空き状況・価格
-![image](https://github.com/kazu-18/gramping2024/assets/63463085/60fcf467-ed96-4192-9a0c-49461f236887)
+20（金）23（月） 34,650円/人  
+21（土）22（日） 40,3250円/人
 
 ## グランエレメント
 https://glamp-element.jp/
@@ -41,7 +43,7 @@ https://glamp-element.jp/activity/
 JR米原駅下車、無料送迎バスで20分。
 または，JR近江長岡駅下車、無料送迎バスで5分。
 ### 空き状況・価格
-20（金）23（月） 41,500円/人
+20（金）23（月） 41,500円/人  
 21（土）22（日） 53,400円/人
 
 ## 物件名
